@@ -1,7 +1,6 @@
 ### Hi there 👋
-Hello! My name is mtdww. 
+Hello! My name is lostwangwang. 
 
-If you want to reach me most, please visit my [blog](https://lostwangwang.xyz/), now I am planning to write my blogs. 
 <!--
 Here are some ideas to get you started:
 
